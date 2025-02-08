@@ -1,8 +1,11 @@
 Los videos filtrados de La Isla de las Tentaciones incendian las redes sociales
 Los videos filtrados de La Isla de las Tentaciones han desatado una ola de reacciones en redes sociales, generando polémica y sorprendiendo a los seguidores del reality.
 
-Imagen de Los videos filtrados de La Isla de las Tentaciones incendian las redes sociales
-Se ha generado una gran controversia en torno a 'La Isla de las Tentaciones' debido a la filtración de varios videos. - Foto: Cortesía.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Las redes sociales están que arden, y no es para menos: la octava edición de 'La Isla de las Tentaciones' ha dado mucho de qué hablar, no solo por los dramas y enfrentamientos en pantalla, sino también por los videos filtrados que han dejado a más de uno con la boca abierta (y los ojos bien abiertos, claro está).
 
